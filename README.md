@@ -4,4 +4,4 @@
 - 🍓 I’m looking to collaborate on ... --> ❇️|discord dm
 - 🔮 How to reach me ...
 - ✨ I'm ... years old
-- 👻 I want to join évents...--> ✨|Voice Chat Channel
+- 👻 I want to join évents...--> ✨|Voice Chat Channel.
